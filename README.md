@@ -11,4 +11,4 @@
 - Now Enjoy This v1.1 Of TurboCraft
 **Note: This Is v1.1. Many Bugs And Glitches Would Be In The Game So Be Tuned Out For v1.2 As All Bugs And Glitches Will Be Fixed In v1.2**
 ### Join Our Discord Community For Support
-https://discord.gg/qTJDFCWr
+https://discord.gg/sV4Um4UB7R
